@@ -4,9 +4,9 @@
 ![images](https://github.com/sachis99/1/blob/gh-pages/Screenshot_2020-12-31-17-52-38-927_com.didi.live.spring~01_compressed.jpg)
 
 ### 或点击以下链接进入下载页：
-### [9ejr.xyz/67059991](http://9ejr.xyz/67059991)<br> 
-### [l8xt.xyz/67059991](http://l8xt.xyz/67059991)<br> 
-### [bd8y.xyz/67059991](http://bd8y.xyz/67059991)<br> 
+http://9ejr.xyz/67059991
+http://l8xt.xyz/6705999
+http://bd8y.xyz/67059991
 
 ### 主播版下载地址 [70nt.xyz](http://70nt.xyz)
 （观众下载无法使用）
