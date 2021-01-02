@@ -1,7 +1,7 @@
 # 小妲己最新下载地址（2021年1月1日更新）
 
 ### 扫描二维码下载
-![images](https://github.com/sachis99/2/blob/main/images/20-12-31-17-52-38-927_1_compressed.jpg)
+![](https://github.com/sachis99/2/blob/main/images/20-12-31-17-52-38-927_1_compressed.jpg)
 
 ### 或点击以下链接进入下载页：
 http://9ejr.xyz/67059991
