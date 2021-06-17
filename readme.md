@@ -3,7 +3,7 @@
 ### 扫描二维码下载小妲己（破解版）
 ![images](https://github.com/sachis99/1/blob/gh-pages/Screenshot_2020-12-31-17-52-38-927_com.didi.live.spring_01_compressed.jpg)
 
-### 或点击以下链接进入下载页：
+### 或点击下面链接进入小妲己下载页：
 http://3dga.xyz/67059991
 
 http://5zya.xyz/67059991
