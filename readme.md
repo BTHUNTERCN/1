@@ -1,12 +1,13 @@
 # 小妲己最新下载地址（2021年8月13日更新）
 ### 原名：小奶猫
+### 似乎又要改名为小狐狸？
 ### 扫描二维码下载小妲己（破解版）
 ![images](https://github.com/sachis99/1/blob/gh-pages/sadfasfa01_compressed.jpg)
 
 ### 或点击下面链接进入小妲己下载页：
-http://rdmj.xyz/75856957
+http://h189.xyz/75856957
 
-http://q7nf.xyz/75856957
+http://0o68.xyz/75856957
 
 
 ### 免费、破解版下载链接
