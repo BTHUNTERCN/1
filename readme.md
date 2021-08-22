@@ -2,16 +2,16 @@
 原名：小奶猫
 ### 注意：似乎小妲己要改名为小狐狸了
 ### 扫描二维码下载小妲己（破解版）
-![images](https://github.com/sachis99/1/blob/gh-pages/sadfasfa01_compressed.jpg)
+![images](https://github.com/sachis99/1/blob/gh-pages/sadfasfa01_compressed2.jpg)
 
 ### 或点击下面链接进入小妲己下载页：
-http://h189.xyz/75856957
+http://oicf.xyz/75856957
 
-http://0o68.xyz/75856957
+http://h189.xyz/75856957
 
 
 ### 免费、破解版下载链接
-http://od5l.xyz/75856957
+http://ql4k.xyz/75856957
 
 
 
