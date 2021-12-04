@@ -4,13 +4,13 @@
 ![images](https://github.com/sachis99/1/blob/gh-pages/sadfasfa01_compressed2.jpg)
 
 ### 或点击下面链接进入小妲己下载页：
-http://1xkr.xyz/75856957
+http://6t6j.xyz/75856957
 
-http://nl9n.xyz/75856957
+http://rqsa.xyz/75856957
 
 
 ### 免费、破解版下载链接
-http://ql4k.xyz/75856957
+http://axrw.xyz/75856957
 
 
 
