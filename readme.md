@@ -4,13 +4,11 @@
 ![images](https://github.com/sachis99/1/blob/gh-pages/15015mi.live.spring.jpg)
 
 ### 或点击下面链接进入小狐狸下载页：
-http://pdqc.xyz/67059991
-
-http://rqsa.xyz/67059991
+https://pdqc.xyz/67059991
 
 
 ### 免费、破解版下载链接
-http://ql4k.xyz/67059991
+https://rqsa.xyz/67059991
 
 
 
