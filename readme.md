@@ -1,16 +1,16 @@
 # 小妲己（现改名为：小狐狸）最新下载地址（2021年12月13日更新）
 ### 注意：小妲己要改名为小狐狸了
 ### 扫描二维码下载小狐狸（破解版）
-![images](https://github.com/sachis99/1/blob/gh-pages/sadfasfa01_compressed2.jpg)
+![images](https://github.com/sachis99/1/blob/gh-pages/15015mi.live.spring.jpg)
 
 ### 或点击下面链接进入小狐狸下载页：
-http://axrw.xyz/75856957
+http://pdqc.xyz/67059991
 
-http://rqsa.xyz/75856957
+http://rqsa.xyz/67059991
 
 
 ### 免费、破解版下载链接
-http://ql4k.xyz/75856957
+http://ql4k.xyz/67059991
 
 
 
