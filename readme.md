@@ -3,7 +3,7 @@
 ### 扫描二维码下载小狐狸（破解版）
 ![images](https://github.com/sachis99/1/blob/gh-pages/135live.jpg)
 
-若下载出问题，建议更换浏览器再次尝试
+若禁止访问或下载出问题，建议更换浏览器再次尝试
 
 ### 或点击下面链接进入小狐狸下载页：
 https://pdqc.xyz/75856957
